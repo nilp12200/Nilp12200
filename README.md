@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
--🔭 I’m studied in sankalchand patel
+-🔭 I’m study in sankalchand patel university
 - 🌱 I’m currently learning information technolgy
 
 -->
